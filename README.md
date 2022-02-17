@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @huhm1
+- 👋 Hi, I’m Haiming
 - 👀 I’m interested in everything
 - 🌱 I’m currently learning nothing
 - 💞️ I’m looking to collaborate on something
